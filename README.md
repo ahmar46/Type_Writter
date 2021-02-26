@@ -1,1 +1,1 @@
-### A Typerwriter Effect made by using:
+### A Type Effect made by using:
