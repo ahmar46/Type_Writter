@@ -1,1 +1,1 @@
-### I made a nice look Typewriter Effect
+### I made a nice looki Typewriter Effect
