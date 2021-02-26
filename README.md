@@ -1,1 +1,1 @@
-### I made a nice lo Typewriter Effect
+### I made a nice loo Typewriter Effect
