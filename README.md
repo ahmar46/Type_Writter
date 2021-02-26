@@ -1,1 +1,1 @@
-### I made a Typewriter Effect
+### I made a ni Typewriter Effect
