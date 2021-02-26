@@ -1,1 +1,1 @@
-### A Typewr Effect made by using:
+### A Typewri Effect made by using:
