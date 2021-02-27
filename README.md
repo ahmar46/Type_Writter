@@ -1,3 +1,3 @@
 ### I made a nice looking Typewriter Effect.
 
-### Technologies Used: HTML, CSS, JavaScrip
+### Technologies Used: HTML, CSS, JavaScript
