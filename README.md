@@ -1,4 +1,4 @@
-### I made a nice looking Typewriter Effect that c.
+### I made a nice looking Typewriter Effect that ca.
 
 ### Technologies Used: HTML, CSS, JavaScript.
 
