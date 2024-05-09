@@ -10,4 +10,4 @@ Noted on the i
 
 [Instagram]: https://www.instagram.com/electrifyingcodes 
 note - ujj dh
-Note - Thi s t
+Note - Thi s 
