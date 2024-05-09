@@ -9,5 +9,5 @@ thi s ghgh juhgfi d hij  ughdfuh i i l;fdj bbhurhg  o thi s gj  gfjgh b  udhhu i
 Noted on the i
 
 [Instagram]: https://www.instagram.com/electrifyingcodes 
-note - ujj dh
+note - ujj d
 Note - 
