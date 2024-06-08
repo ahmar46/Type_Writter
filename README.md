@@ -5,7 +5,7 @@
 ### Find me on Instagram - [@electrifyingcodes][Instagram].
 ### Find me on Instagram - [@electrifyingcodes]
  
-thi s ghgh juhgfi 
+thi s ghgh juhgf
 
 [Instagram]: https://www.instagram.com/electrifyingcodes 
 note - 
