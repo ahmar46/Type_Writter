@@ -4,6 +4,6 @@
 
 ### Find me on Instagram - [@electrifyingcodes][Instagram].
 ### Find me on Ingit add .
-git commi
+git comm
 
 [Instagram]: https://www.instagram.com/electrifyingcodes
