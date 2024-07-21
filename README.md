@@ -3,6 +3,6 @@
 ### Technologies Used: HTML, CSS, JavaScript.
 
 ### Find me on Instagram - [@electrifyingcodes][Instagram].
-### Find me on Youtube - [@el]
+### Find me on Youtube - [@ele]
 
 [Instagram]: https://www.instagram.com/electrifyingcodes
